@@ -6,7 +6,7 @@
   <img src="https://github.com/user-attachments/assets/d4ce0d3f-a0b7-45fd-bce7-81f2ceb0d703"width="1400">
 </p>  
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/b7e94a57-e37d-48c4-8ba3-2e0a364857f2"width="450">
+  <img src="https://github.com/user-attachments/assets/b7e94a57-e37d-48c4-8ba3-2e0a364857f2"width="350">
 </p>
 <p align="center">
   "A mermaids tale"
