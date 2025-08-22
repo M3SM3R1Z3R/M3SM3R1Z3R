@@ -12,7 +12,7 @@
   "A mermaids tale"
 </p>
 
-   [Ata🌊](https://digital-hallucination.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🐚](https://endlesstragedy.straw.page/) ‎  ‎  ‎  ‎ [Pronouns🫧](https://en.pronouns.page/@A-mermaids-Tale)
+   [Ata🌊](https://digital-hallucination.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🐚](https://digital-hallucination.straw.page/) ‎  ‎  ‎  ‎ [Pronouns🫧](https://en.pronouns.page/@A-mermaids-Tale)
    
 <p align="center">
   <img src="https://github.com/user-attachments/assets/8505b391-8581-43fc-979a-71fec0d175ef"width="1400">
