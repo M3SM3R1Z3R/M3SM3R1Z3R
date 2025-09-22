@@ -9,7 +9,7 @@
 
    [Ata👑](https://digital-hallucination.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🎆](https://digital-hallucination.straw.page/) ‎  ‎  ‎  ‎ [Pronouns🎑](https://en.pronouns.page/@The-Cheerleader)
 
-<p align="center"> $\color{#3026a6}{\textbf{I need her plushie she is so stking pretty and cute}}$
+<p align="center"> $\color{#3026a6}{\textbf{I need the plushie it is so stking pretty and cute}}$
 <p align="center"> $\color{#3026a6}{\textbf{Btw hope you are having a great day/afternoon/night}}$
 <p align="center"> $\color{#3026a6}{\textbf{Welp this is all, byeeeee}}$
 
