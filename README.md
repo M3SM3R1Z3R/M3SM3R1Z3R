@@ -4,16 +4,14 @@
   
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/71d876a3-a287-4ff0-9500-829373523073"width="500">
+  <img src="https://github.com/user-attachments/assets/7ac5a72a-d385-43ba-ad06-31156157c45b"width="500">
 </p>  
 
    [Ata🎉](https://digital-hallucination.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🎆](https://digital-hallucination.straw.page/) ‎  ‎  ‎  ‎ [Pronouns📣](https://en.pronouns.page/@The-Cheerleader)
 
-<p align="center"> $\color{#79168c}{\textbf{Hiiiiiii, just a Lily kinnie saying hi}}$
-<p align="center"> $\color{#79168c}{\textbf{Hope you are having a great day/afternoon/night}}$
-<p align="center"> $\color{#79168c}{\textbf{Welp this is all, byeeeee}}$
+<p align="center"> $\color{#3026a6}{\textbf{I need her plushie she is so stking pretty and cute}}$
+<p align="center"> $\color{#3026a6}{\textbf{Btw hope you are having a great day/afternoon/night}}$
+<p align="center"> $\color{#3026a6}{\textbf{Welp this is all, byeeeee}}$
 
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/d3fd2669-61c2-4cf2-8bc3-abc363f5da2d"width="300">
-</p>  
+
 
