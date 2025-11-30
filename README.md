@@ -7,6 +7,9 @@
 <p align="center">
   <img src="https://github.com/user-attachments/assets/f1f31cb6-65eb-4209-a455-c03374894072"width="800">
 </p>  
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/7da46a98-371c-4226-a944-9297909d78e1"width="250">
+</p>
 
    [Ata👑](https://digital-hallucination.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🎆](https://digital-hallucination.straw.page/) ‎  ‎  ‎  ‎ [Pronouns🎑](https://en.pronouns.page/@GUIN3VERE)
 
